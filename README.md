@@ -54,5 +54,9 @@
 
 
 ### **발표 자료**
-팀 소개 발표 자료 : [팀 소개 발표 자료 보기](https://github.com/user-attachments/files/17814799/_5.pptx) <br>
-활동 보고 발표 자료 : [활동 보고 발표 자료 보기](https://github.com/user-attachments/files/17814731/_5.pptx)
+팀 소개 발표 자료 ➡️ [팀 소개 발표 자료 보기](https://github.com/user-attachments/files/17814799/_5.pptx) <br>
+활동 보고 발표 자료 ➡️ [활동 보고 발표 자료 보기](https://github.com/user-attachments/files/17814731/_5.pptx) <br>
+크리에이터 경진대회 영상 자료 ⬇️
+
+https://github.com/user-attachments/assets/21a300da-3116-4cca-9d22-bae34907d3d0
+
